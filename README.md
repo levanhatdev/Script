@@ -1,1 +1,6 @@
-Vô Đây Làm Cái Gì:)) Script Trong Đây Encrypt Hết Rồi Nhé=)))
+## Tommy Teo Hub ☑️
+**Vô Đây Làm Gì Bạn Nhỉ :)?**
+**Xem Giới Thiệu À?**
+**Được Thôi :)**
+**Bla Bla Bla Bla Bla Bla**
+**Hết :)**
